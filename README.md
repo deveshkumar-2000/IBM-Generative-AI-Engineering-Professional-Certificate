@@ -4,4 +4,4 @@ What you'll learn Job-ready skills employers are crying out for in gen AI, machi
 What I have completed is 
 1- Course Introduction 
 2- Course Overview
-
+3- Helpful tips to complete the course 
