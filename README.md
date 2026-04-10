@@ -7,7 +7,3 @@ What I have completed is
 3- Helpful tips to complete the course 
 
 
-
-
-New New new 
-new new new
